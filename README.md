@@ -1,0 +1,2 @@
+# Godgod
+Your time die
